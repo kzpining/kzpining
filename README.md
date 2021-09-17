@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kzpining
 - 👀 I’m interested in poetry, books and music
 - 🌱 I’m currently learning Criminolgy Course
-- 💞️ I’m looking to collaborate on Canva
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me kzpining@student.fatima.edu.ph
 
 <!---
